@@ -1,1 +1,0 @@
-# goodpockyy.github.io
